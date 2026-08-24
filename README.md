@@ -11,7 +11,6 @@ I am currently enrolled in the Asah 2026 Independent Study Program, following th
 - 🤔 I’m looking for recommendations for exciting Chinese-translated novels on Wattpad
 - 💬 Ask me about Chinese-translated novels on Wattpad
 - 📫 How to reach me: auraliazalsabillah@gmail.com
-- 😄 Pronouns: She
 - ⚡ Fun fact: I can spend hours just reading novels on Wattpad—other than studying, eating, showering, and sleeping.  
 
 ### Reach me on
